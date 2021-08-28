@@ -31,4 +31,6 @@ settle down 安顿下来
 
 settle up 付清
 
+be ashamed of 
+
 She seldom, if ever, goes to the theatre. 
